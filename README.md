@@ -1,1 +1,2 @@
 # my-first-repo
+Hi! My name's Autumn! I'm from Staten Island, and I'm super excited about this program. In my free time, I enjoy doing crafts, baking, and playing pickleball. Rap, r n b, and pop are my favorite genres of music and I love going to concerts 
